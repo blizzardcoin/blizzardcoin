@@ -1,0 +1,1 @@
+BlizzardCoin  BLZ
